@@ -1,4 +1,4 @@
-- SUp,i'm @45CodeWOking
+- Sup,i'm @45CodeWOking
 - Im checking in and out for stuff
 - Learning Coding
 - Penis
